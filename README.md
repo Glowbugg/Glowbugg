@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Glowbugg
+- 👀 I’m interested in Hair, Nails, and skin Care
+- 🌱 I’m currently learning Python!
+- 📫 How to reach me Instagram @blu.toess
